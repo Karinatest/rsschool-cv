@@ -13,6 +13,11 @@ Set up advertising in Yandex and Google for the company's clients. optimized cam
 ##### 2014-2020 home pastry chef
 I prepared cakes, muffins, and marshmallows to order. Worked from home. Took pastry courses
 
+### Skills and Proficiency
+***
+VS Code
+Adobe Photoshop, Illustrator, InDesign
+Codewars
 
 ### Language
 ***
