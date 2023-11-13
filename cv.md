@@ -1,4 +1,4 @@
-
+![imgonline-com-ua-Resize-E57geEO9U9](https://github.com/Karinatest/rsschool-cv_1/assets/145896968/d6b47d00-898a-485d-926c-6211b0f026bd)
 ### About me
 ***
 I have a higher economic education. For the last couple of years, I have worked as a contextual advertising specialist in one of the largest agencies in St. Petersburg providing services in this area.
