@@ -15,13 +15,15 @@ I prepared cakes, muffins, and marshmallows to order. Worked from home. Took pas
 
 ### Skills and Proficiency
 ***
-VS Code
-Adobe Photoshop, Illustrator, InDesign
-Codewars
+1. VS Code
+2. Adobe Photoshop, Illustrator, InDesign
+3. Codewars
 
 ### Language
 ***
-I have a strong pre-intermediate level of English.
+1. English - Pre-Intermediate
+2. Russian - Native
+3. French - Basic
 
 ### Interests
 ***
