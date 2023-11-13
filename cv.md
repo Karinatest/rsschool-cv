@@ -18,4 +18,11 @@ I prepared cakes, muffins, and marshmallows to order. Worked from home. Took pas
 ***
 I have a strong pre-intermediate level of English.
 
+### Interests
+***
+1. Travelling
+2. Listen to music
+3. Skatching
+4. Figure skate
+
 
