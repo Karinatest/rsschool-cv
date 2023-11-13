@@ -1,0 +1,7 @@
+
+### About me
+***
+I have a higher economic education. For the last couple of years, I have worked as a contextual advertising specialist in one of the largest agencies in St. Petersburg providing services in this area.
+At some point I realized that it was time to change my field of activity and took retraining courses to become a tester. During the training, I understood the further vector for development, that is, front-end development.
+I have the skills of perseverance and meticulousness, which are among the essential qualities of an effective employee. I am currently training to be a front-end developer.
+
